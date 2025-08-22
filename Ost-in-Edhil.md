@@ -1,0 +1,19 @@
+In the nine hundred and twentieth year of the Second Age, when the first mists yet clung in the hollows of the Sirannon, there came to the gates of Ost-in-Edhil a stranger, fair of form and stately to behold. Long had the watchmen marked his coming, for he went unhurried upon the road out of Tharbad; and about him the light seemed to gather, as the quiet of morning gathers to a tower of white stone.
+
+Tall he was—taller than the tallest among the Gwaith-i-Mírdain—and his hair fell like new-forged gold upon his shoulders, that were wrapped in soft grey raiment. No blade he bore, nor any shield; only a staff of smooth white ash, unmarred by device. His hands were long and deft, as of one who has great skill in hidden crafts; yet it was his eyes that held all who looked upon him: grey as a winter sea under paling skies, deep with a memory beyond count of years, and lit by a fire at once kindly and perilous.
+
+“I am named Annatar,” said he, when the challenge was given at the gate; and his voice was as a music half-remembered from a shore long forsaken. “I seek Celebrimbor, son of Curufin, grandson of Fëanor; for tidings of his craft have reached even to the uttermost West. Lore I bring that may avail the Free Peoples of Middle-earth, if he will but hear me.”
+
+Then were the guards in doubt; for fair beyond mortal measure was the stranger, and courteous were his words; yet a shadow, as of wind upon sunlit water when no cloud is in the sky, troubled their hearts. But Celebrimbor was hastened from his forge, the heat of labour still upon his brow; and seeing the stranger he was moved, for in the newcomer’s gaze there burned a light that answered something unquiet and unquenched within his own heart.
+
+“Welcome, Annatar—if Annatar you be,” said Celebrimbor; and keenly he looked upon him, as one who knows that fairness may reveal no less than it conceals. “Tell me this, ere you pass within: from what shore do you come, and whom did you serve in the West that is not for us?”
+
+Annatar smiled; and it was as the first softening of winter upon the furrows of the field. “I served many lords and none,” he answered; “for I am of those who stand apart, seeking wisdom rather than dominion—perfection of craft rather than mastery over the wills of others. In the youth of the world I sat at the feet of Aulë, though least was I among his people; and much I learned of the shaping and reshaping of things. Now am I come eastward; for here I discern hearts that hunger for beauty and for knowledge, undaunted by the defeats of elder days.”
+
+At this the misgiving of Celebrimbor was lessened and ebbed, as a spent tide draws from the shore; for the words touched deep the desire within him—to match, if it might be, and even to surpass, the wrought wonders of his forbears, and by making to heal somewhat of the Marring that pride had wrought. And perceiving this yearning as clearly as a smith marks the hidden flaw in the metal, Annatar spoke on, with a gentle seemliness:
+
+“The Silmarils are lost beyond our reach; this I know. Yet might not lesser lights be kindled—untainted by oath or sorrow—to hold the Shadow at bay that rises in the East? This is the lore I bring: how the light that is in the world may be set within its fair bounds, imperishable and unmarred.”
+
+Thus first did the Lord of Gifts reveal himself among the Elven-smiths: saying no word that was false, yet weaving truth into a net more cunning than any lie. And Celebrimbor, in whom the fire of Fëanor yet burned, not tempered as yet to wisdom, opened the gates of Ost-in-Edhil and bade the stranger enter.
+
+The sun stood high when Annatar passed beneath the lintel; and his shadow fell long and dark behind him, though few marked it then. But afterward Galadriel spoke, saying that even in distant Lórien she had felt a change in the Music of the world: as when a fair harmony admits a note not itself untrue, yet foretelling a dissonance to come.
